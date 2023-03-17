@@ -1,2 +1,0 @@
-# Assi_Mirdan_Project4
-RESPONSIVE PROTOTYPE
